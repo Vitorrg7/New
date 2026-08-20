@@ -1,0 +1,1 @@
+Dak a pouco a de sair uma resenha daqui de dentro
